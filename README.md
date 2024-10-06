@@ -1,2 +1,0 @@
-# Saffronbygoli
-Aeroponic Saffron Cultivation 
